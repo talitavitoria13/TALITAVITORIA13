@@ -7,6 +7,6 @@ Meu nome é Talita Vitória dos Santos
 -Utilizo esse espaço para minha organização e compartilhamento dos meus 
 projetos desenvolvidoss!!.
 
-VOCE PODE ENTRAR EM CONTATO COMIGO EM
+VOCE PODE ENTRAR EM CONTATO COMIGO 
 
 @0000110531795xsp@al.educacao.gov.sp.br
